@@ -1,2 +1,0 @@
-# wenigco.github.io
-
